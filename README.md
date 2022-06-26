@@ -1,1 +1,1 @@
-# javascript101
+# jAVASCRIPT COURSE OFFERED JONAS
